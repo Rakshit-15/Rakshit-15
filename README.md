@@ -7,4 +7,3 @@ Here are some ideas to get you started:
 
 - 🔭 I’m currently working on something really exciting!
 - 🌱 I’m currently learning new techstacks!
--
